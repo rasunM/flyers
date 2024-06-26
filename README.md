@@ -1,1 +1,1 @@
-This was desing using canva
+This was designed using canva
